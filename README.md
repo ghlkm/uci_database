@@ -18,3 +18,7 @@ https://forms.gle/tR4LY7fcbMHwnGEG9
 Quiz: 
 
 https://docs.google.com/document/d/18D_ncaLvcrHoWfLMe9Hpb4jYbkgsW5qA/edit?usp=sharing&ouid=104696372253666699102&rtpof=true&sd=true
+
+Answer of Quiz:
+
+https://docs.google.com/document/d/1oncjM9KB8onLnTAdFD7_4pF24oTI-0If/edit?usp=sharing&ouid=104696372253666699102&rtpof=true&sd=true
